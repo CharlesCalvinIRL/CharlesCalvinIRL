@@ -1,6 +1,6 @@
-- Charles/Anne 🏩
-- any pronouns + neos
-- System Co-Host
+- Tiff 
+- they/them
+- average transgirl
 - i only made this for discord lmao
 
 <!---
